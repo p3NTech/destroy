@@ -1,0 +1,1 @@
+At a certain point in time, it will destroy a sufficient number of servers in Ukraine, this is an extreme measure that I will resort to as a last resort, many servers have my worm, not only in Ukraine.
